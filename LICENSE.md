@@ -1,0 +1,1 @@
+GPL, CC-SA 
